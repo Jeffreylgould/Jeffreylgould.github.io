@@ -1,5 +1,5 @@
 
-- Distinguished Professor and James H. Rudy Professor, [Dept. of History](https://history.indiana.edu/faculty_staff/faculty/gould_jeffrey.html)
+### Distinguished Professor and James H. Rudy Professor, [Dept. of History](https://history.indiana.edu/faculty_staff/faculty/gould_jeffrey.html)
 
 **Contact**
 
