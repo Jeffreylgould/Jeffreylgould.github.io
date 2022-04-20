@@ -7,7 +7,7 @@
 - (812) 855-6934
 - gouldj@indiana.edu
 
-## Puerto el Triunfo (Port Triumph)
+## Puerto el Triunfo (Port Triumph) (2019)
 
 Durante la década de 1970, El Salvador contaba con una vasta industria del camarón, y casi todas las 3700 toneladas que exportaba cada año llegaron a los Estados Unidos. A medida que los camarones se alejaban del estado de lujo, es probable que pocos estadounidenses piensen mucho en cómo los camarones llegaron a sus platos. Menos aún habrían oído hablar de la historia de Puerto el Triunfo (Port Triumph en inglés) y del drama del auge y caída de la industria del camarón. Sin embargo, ahora, con la conciencia de los alimentos en su punto más alto de todos los tiempos, y las preocupaciones sobre el comercio justo y la sostenibilidad en la mente del público, es hora de contar esta notable historia. Puerto el Triunfo es un microcosmos que pone de relieve algunas de las fuerzas más poderosas que dan forma a Centroamérica y, en general, los obstáculos que enfrenta el trabajo organizado en todo el mundo.
 
@@ -23,14 +23,21 @@ El Salvador's long civil war had its origins in the state repression against one
 
 - Publisher's monograph page: [https://doi.org/10.1017/9781108297394](https://doi.org/10.1017/9781108297394)
 
-## La Palabra en el Bosque (The Word in the Woods)
+## La Palabra en el Bosque (The Word in the Woods) (2012)
 During the early 1970s, hundreds of impoverished people living in remote Morazán, El Salvador, decided to emulate the early Christian communities. Inspired by liberation theology, they worked the land together, studied the Bible, and built villages based on solidarity. But as their numbers grew into the thousands, they came to be seen as a threat by the Salvadoran government. By the late ’70s the faithful organized to resist the repressive tactics of the National Guard, and during the ’80s they fought what would become a 12-year civil war as the military engaged in scorched-earth operations against them. Emphasizing the utopian aspects of Christian base communities, La Palabra en el Bosque (The Word in the Woods) examines these events through the narratives of surviving witnesses.
 
 - Publisher's documentary page: https://ffh.films.com/id/24426/La_Palabra_en_el_Bosque_The_Word_in_the_Woods—in_Spanish_with_English_Subtitles.htm
 - Spanish-language documentary: https://www.youtube.com/watch?v=SG-SbV6WzTE
 - ISBN: 978-1-62290-016-9
 
-## 1932, Cicatriz de la Memoria (Scars of Memory)
+## To Rise in Darkness: Revolution, Repression, and Memory in El Salvador, 1920–1932 (2008)
+
+To Rise in Darkness offers a new perspective on a defining moment in modern Central American history. In January 1932 thousands of indigenous and ladino (non-Indian) rural laborers, provoked by electoral fraud and the repression of strikes, rose up and took control of several municipalities in central and western El Salvador.
+
+- Publisher's monograph site: https://doi.org/10.1215/9780822381242
+- ISBN electronic: 978-0-8223-8124-2
+
+## 1932, Cicatriz de la Memoria (Scars of Memory) (2002)
 
 Documental sobre la insurrección indígena que sacudió a El Salvador en 1932, con un gran impacto en lo cultural, político y social, cuya represión gubernamental dejó miles de fusilados. Luego de décadas de silencio, los sobrevivientes cuentan la historia.
 
@@ -38,21 +45,14 @@ In 1932 the army and "citizen militias" in El Salvador brutally crushed an upris
 
 - https://www.youtube.com/watch?v=mLZTTxddCZg (Spanish)
 
-## To Die in this Way: Nicaraguan Indians and the Myth of Mestizaje, 1880-1965
+## To Die in this Way: Nicaraguan Indians and the Myth of Mestizaje, 1880-1965 (1998)
 
 Challenging the widely held belief that Nicaragua has been ethnically homogeneous since the nineteenth century, To Die in This Way reveals the continued existence and importance of an officially “forgotten” indigenous culture. Jeffrey L. Gould argues that mestizaje—a cultural homogeneity that has been hailed as a cornerstone of Nicaraguan national identity—involved a decades-long process of myth building.
 
 - Paper ISBN: 978-0-8223-2098-2 / Cloth ISBN: 978-0-8223-2084-5
 - Publisher's monograph site: https://www.dukeupress.edu/to-die-in-this-way
 
-## To Rise in Darkness: Revolution, Repression, and Memory in El Salvador, 1920–1932
-
-To Rise in Darkness offers a new perspective on a defining moment in modern Central American history. In January 1932 thousands of indigenous and ladino (non-Indian) rural laborers, provoked by electoral fraud and the repression of strikes, rose up and took control of several municipalities in central and western El Salvador.
-
-- Publisher's monograph site: https://doi.org/10.1215/9780822381242
-- ISBN electronic: 978-0-8223-8124-2
-
-## To Lead As Equals: Rural Protest and Political Consciousness in Chinandega, Nicaragua, 1912-1979
+## To Lead As Equals: Rural Protest and Political Consciousness in Chinandega, Nicaragua, 1912-1979 (1990)
 
 This book is a carefully argued study of peasants and labor during the Somoza regime, focusing on popular movements in the economically strategic department of Chinandega in western Nicaragua.
 
