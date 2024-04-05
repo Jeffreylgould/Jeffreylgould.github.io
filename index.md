@@ -14,6 +14,7 @@ Durante la década de 1970, El Salvador contaba con una vasta industria del cama
 During the 1970s, El Salvador boasted a vast shrimp industry, and nearly all of the 3700 tons that it exported each year made its way to the United States. As shrimp was transitioning away from luxury status, few Americans were likely to give much thought to how the shrimp reached their plates. Fewer still would ever have heard of the story of Puerto el Triunfo – Port Triumph in English – and the drama of the shrimp industry’s rise and fall. Yet now, with consciousness of food at an all-time high, and concerns about fair trade and sustainability much on the public mind, it is time to tell this remarkable story. Puerto el Triunfo is a microcosm that throws into sharp relief some of the most powerful forces shaping Central America, and more broadly, the obstacles facing organized labor world-wide.
 
 - [Stream the Spanish-language documentary](https://archivomesoamericano.org/media_objects/r207tp34z)
+- [Stream the English-language documentary](https://purl.dlib.indiana.edu/iudl/media/h24673726t)
 - [IU Press publisher's documentary page](https://iupress.org/9780253046017/port-triumph/)
 - [Films Media Group publisher's documentary page](https://ffh.films.com/id/24426/La_Palabra_en_el_Bosque_The_Word_in_the_Woods%E2%80%94in_Spanish_with_English_Subtitles.htm)
 
