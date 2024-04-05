@@ -1,11 +1,10 @@
-
-## Distinguished Professor and James H. Rudy Professor, [Dept. of History](https://history.indiana.edu/faculty_staff/faculty/gould_jeffrey.html)
+## Distinguished Visiting Professor, School of Historical Studies, [Institute for Advanced Study](https://www.ias.edu/scholars/jeffrey-lawrence-gould)
+## Distinguished Professor and James H. Rudy Professor, [Dept. of History] (https://history.indiana.edu/faculty_staff/faculty/gould_jeffrey.html), emiritus
 
 #### Contact
 
-- Department of History, Ballantine Hall 820, 1020 E Kirkwood Ave, Bloomington, IN 47405
-- (812) 855-6934
-- gouldj@indiana.edu
+- Institute for Advanced Study, 1 Einstein Drive, Princeton, NJ 08540
+- gouldj@indiana.edu, gouldj@ias.edu
 
 ## Puerto el Triunfo (Port Triumph) (2019)
 
