@@ -6,6 +6,14 @@
 - Institute for Advanced Study, 1 Einstein Drive, Princeton, NJ 08540
 - gouldj@indiana.edu, gouldj@ias.edu
 
+## Dawn to Despair Trailer (2023)
+
+Watch the trailer for our new historical fiction, [Dawn to Despair](https://vimeo.com/produccioneslapecera/saateaser)
+
+## Entre el Bosque y los Arboles (2021)
+
+Read [Entre el Bosque y los Arboles](https://Jeffreylgould.github.io/assets/gould_-_entre_el_bosque_y_los_arboles_0.pdf)
+
 ## Puerto el Triunfo (Port Triumph) (2019)
 
 Durante la década de 1970, El Salvador contaba con una vasta industria del camarón, y casi todas las 3700 toneladas que exportaba cada año llegaron a los Estados Unidos. A medida que los camarones se alejaban del estado de lujo, es probable que pocos estadounidenses piensen mucho en cómo los camarones llegaron a sus platos. Menos aún habrían oído hablar de la historia de Puerto el Triunfo (Port Triumph en inglés) y del drama del auge y caída de la industria del camarón. Sin embargo, ahora, con la conciencia de los alimentos en su punto más alto de todos los tiempos, y las preocupaciones sobre el comercio justo y la sostenibilidad en la mente del público, es hora de contar esta notable historia. Puerto el Triunfo es un microcosmos que pone de relieve algunas de las fuerzas más poderosas que dan forma a Centroamérica y, en general, los obstáculos que enfrenta el trabajo organizado en todo el mundo.
