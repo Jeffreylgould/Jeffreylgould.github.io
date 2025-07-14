@@ -1,10 +1,10 @@
-## Distinguished Visiting Professor, School of Historical Studies, [Institute for Advanced Study](https://www.ias.edu/scholars/jeffrey-lawrence-gould)
 ## Distinguished Professor and James H. Rudy Professor, [Dept. of History] (https://history.indiana.edu/faculty_staff/faculty/gould_jeffrey.html), emiritus
+## Distinguished Visiting Professor, School of Historical Studies, [Institute for Advanced Study](https://www.ias.edu/scholars/jeffrey-lawrence-gould) \(2022-2024\)
+
 
 #### Contact
 
-- Institute for Advanced Study, 1 Einstein Drive, Princeton, NJ 08540
-- gouldj@indiana.edu, gouldj@ias.edu
+- gouldj@iu.edu, gouldj@ias.edu
 
 ## Dawn to Despair Trailer (2023)
 
