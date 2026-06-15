@@ -1,4 +1,4 @@
-## Distinguished Professor, emeritus, [Dept. of History](https://history.indiana.edu/faculty_staff/faculty/gould_jeffrey.html)
+## Distinguished Emeritus Professor and James H. Rudy Emeritus Professor, [Dept. of History](https://history.indiana.edu/faculty_staff/faculty/gould_jeffrey.html)
 ## Distinguished Visiting Professor, School of Historical Studies, [Institute for Advanced Study](https://www.ias.edu/scholars/jeffrey-lawrence-gould) \(2022-2024\)
 
 
