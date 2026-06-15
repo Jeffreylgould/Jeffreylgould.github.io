@@ -4,7 +4,7 @@
 
 #### Contact
 
-- gouldj@iu.edu, gouldj@ias.edu
+- gouldj@iu.edu
 
 ## Dawn to Despair Trailer (2023)
 
